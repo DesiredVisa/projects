@@ -1,1 +1,1 @@
-# most of these scripts will kick you****
+# most/all of these scripts will kick you****
